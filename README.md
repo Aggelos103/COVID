@@ -1,1 +1,1 @@
-# COVID
+# COVID dokimi
